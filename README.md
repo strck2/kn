@@ -1,3 +1,6 @@
+#  <a href="https://kingroyall618.com">www.kingroyal.com</a>
+#  <a href="https://kingroyall618.com">GİRİŞ İÇİN TIKLAYINIZ</a>
+
 # KİNGROYAL, KİNGROYAL MOBİL, KİNGROYAL GİRİŞ ADRESİ
 
 Kingroyal, online bahis ve casino sektöründe sunduğu zengin içerik, yüksek oranlar ve kullanıcı odaklı hizmet anlayışıyla öne çıkan yenilikçi bir platformdur. Gerek spor bahisleri gerekse casino oyunlarında profesyonel çözümler sunan site, modern tasarımı ve mobil uyumlu yapısıyla her seviyeden kullanıcıya hitap etmektedir.
